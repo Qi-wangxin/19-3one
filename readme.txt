@@ -1,3 +1,3 @@
 
 
-Do not want to work hard
+Do not want to work hard.
